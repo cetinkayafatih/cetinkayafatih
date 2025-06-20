@@ -28,8 +28,8 @@ To become a **New Generation Industrial Engineer** who redefines how we interact
 ---
 
 ### 📬 Connect With Me
-- 📫 fatihcetinkaya@email.com  
-- 💼 [LinkedIn](www.linkedin.com/in/mehmet-fatih-çetinkaya-55a85a370)  
+- 📫 fatihctinkya0@gmail.com  
+- 💼 [LinkedIn](www.linkedin.com/in/mehmet-fatih-çetinkaya)  
 - 🌐 [Personal Website (coming soon)](#)
 
 ---
